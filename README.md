@@ -1,0 +1,5 @@
+- 👋 Hi, my name is Giovanni, and I'm @justanormalmaker.
+- 🟩⬜🟥 Love from Italy!
+- 👀 Passionate about electronics, coding, robotics, design, photograpy and 3D printing.
+- 💞️ I’m looking to collaborate on robotics and electronics projects to learn new things.
+- 📫 Get in touch! Instagram: @justanormalmaker  Email: justanormalmaker@gmail.com
